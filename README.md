@@ -1,2 +1,2 @@
 # busyBuzzyBees
-endyear project / vivian oh, sarah specht, jolene liu
+endyear project, sophomore year / vivian oh, sarah specht, jolene liu
